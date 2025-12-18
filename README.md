@@ -1,1 +1,0 @@
-# hokkaido-2025-new-
